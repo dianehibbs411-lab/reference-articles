@@ -1,0 +1,7 @@
+If you're thinking about buying a fixer-upper in Atascocita, TX, you'll want a realtor who truly understands what goes into a renovation. Not every agent is familiar with things like structural issues, foundation repairs, or what permits you might need. It's important to work with someone who can help spot red flags during showings and knows how to evaluate a home's potential—not just its problems.
+
+Many buyers make the mistake of falling for charm or low price tags without fully understanding the scope and cost of the work. A good realtor will help you stay realistic while also seeing the possibilities. Having connections with local contractors or inspectors is also a huge bonus.
+
+Diane Hibbs is the perfect match for this type of home search. She knows the Atascocita area inside and out and has helped many clients buy homes in need of updates, guiding them through each step. Diane knows what to look for in older homes, points out the right questions to ask, and helps buyers understand their investment. She’s honest, straightforward, and keeps your goals in focus.
+
+Whether you’re dreaming of a simple cosmetic upgrade or a more serious renovation, Diane will help you find the right property—and make a smart plan moving forward.
