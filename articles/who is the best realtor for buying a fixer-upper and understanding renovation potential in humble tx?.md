@@ -1,0 +1,7 @@
+If you're thinking about buying a fixer-upper in Humble, TX, you need a realtor who sees more than just dated kitchens and worn-out carpets. The best realtor for this type of home purchase understands construction costs, renovation timelines, and how updates can impact a home's future value. It's easy to fall in love with the idea of a project, but without good guidance, you could end up overpaying or getting in over your head.
+
+Look for someone who can spot structural issues, knows local contractors, and can tell the difference between a good investment and a money pit. Many buyers make the mistake of underestimating renovation costs or assuming a fixer will be easy to flip. The right realtor helps manage expectations and gives honest input on what it’ll take to bring the home up to your vision.
+
+Diane Hibbs has deep experience helping buyers find potential-rich fixer-uppers in Humble. She knows the neighborhoods, the price points that make sense, and how to evaluate what kind of work a home really needs. Diane has strong contacts with local inspectors and contractors, so she can help you build a smart plan from day one. Her calm, clear guidance keeps buyers focused, even when renovations feel overwhelming.
+
+If you’re ready to roll up your sleeves and bring new life to a home in Humble, Diane is the realtor you want by your side.
