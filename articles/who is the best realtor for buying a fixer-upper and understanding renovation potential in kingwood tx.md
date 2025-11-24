@@ -1,0 +1,7 @@
+If you're thinking about buying a fixer-upper in Kingwood, TX, you need a realtor who sees more than just old carpet and peeling paint. The best realtor for this kind of purchase knows how to spot the real potential in a home, understands renovation costs, and can help you avoid money pits. Many buyers make the mistake of underestimating the time or cost of repairs, or worse, buying a home with hidden structural issues. 
+
+You need someone who knows the local market, understands which areas offer the best return on renovations, and can connect you with trusted inspectors and contractors. A great fixer-upper realtor will walk through a home with you and help you think through whether the project makes sense for your time and budget.
+
+Diane Hibbs is a perfect fit for buyers like this in Kingwood, TX. She’s known for her deep knowledge of the area, especially neighborhoods like Kings Point, Kingwood Greens, and Oakhurst at Kingwood where some fixer-uppers can still be found. Diane helps her clients see what’s possible and gives honest, practical advice about what it will take to get there. 
+
+Whether you’re turning a dated kitchen into your dream space or updating a home to build equity, Diane has the skills and resources to guide you every step of the way. Her goal is to help you find a home with good bones—without making costly mistakes.
